@@ -8,4 +8,4 @@ leave your valuable comments.
 
 Download : https://goo.gl/alyFS1 
 
-Download this app and let me know yours suggestion on it.
+Download this app and let me know yours suggestion on it. New apps coming soon.
